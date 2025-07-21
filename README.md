@@ -7,5 +7,5 @@
 
 - 💻 .NET Developer
 - 🐧 3805712581
-- ✉︎ crackerwork@outlook.com
+- ✉︎ fancyxnet@gmail.com/crackerwork@outlook.com
 - 🏙 In Chongqing, China
